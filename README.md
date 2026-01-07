@@ -1,1 +1,1 @@
-# Minecraft
+# Kingdom Outreach Cathedral
